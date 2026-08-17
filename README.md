@@ -13,4 +13,11 @@ This is a fresh profile where l'll be uploading some smaller projects, experimen
 
 • Content creator : Youtube, TikTok, Instagram
 
+----------------------------------------------------------------------------------------------------------------------------
+## A bit About Me
 
+• 🖥️ I like anything related to PCs 
+
+• 🎮 I'm a gamer. My favorite games are Elden Ring, the Resident Evil series, Fortnite, Silent Hill, and Hollow Knight.
+
+• 💡 I love creativity, innovation, and exploring new ideas
