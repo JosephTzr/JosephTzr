@@ -8,7 +8,9 @@ This is a fresh profile where l'll be uploading some smaller projects, experimen
 ## Tools 
 
 • Programer : python, GD Script GODOT , C++
+
 • Video Editor : After Effect, Premiere Pro
+
 • Content creator : Youtube, TikTok, Instagram
 
 
